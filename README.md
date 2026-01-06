@@ -9,7 +9,7 @@ also known as:
 - eRr0r4o4.(duolingo)
 - eRr0r4o4(most other situations)
 
-i'm a student right now in 7th grade, doing usaco/math
+i'm a student right now in 9th grade, doing usaco/math
 feel free to friend me :)
 
 current projects:none for now!
